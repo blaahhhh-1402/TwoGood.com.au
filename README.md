@@ -1,1 +1,2 @@
 # TwoGood.com.au
+#Two Good Co. is a social enterprise that provides nutritious meals, self-care products, and employment opportunities to women experiencing homelessness, domestic violence, and other forms of disadvantage. They operate on a "buy one, give one" model, where for every product purchased, a meal or self-care item is donated to someone in need. Two Good Co. also runs programs to help women gain skills and confidence, empowering them to rebuild their lives.
